@@ -1,0 +1,2 @@
+# Cartograf-a-simb-lica-del-METFI-Mandalas-Toroides-y-Lenguaje-de-Reinicio-Civilizatorio
+Representaciones simbólicas, diagramas técnicos e infografías interactivas del Modelo Electromagnético Toroidal de Forzamiento Interno (METFI). Su propósito es tender un puente entre geodinámica, cosmología especulativa y arquetipos culturales que a lo largo de la historia han plasmado el ciclo de colapso y reinicio civilizatorio
